@@ -3,5 +3,5 @@
 Hi Humans!
 
 So??? 
-What's f**k this?
+What's this?
 I major in history...
